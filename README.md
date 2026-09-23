@@ -1,0 +1,7 @@
+MMUST SHOP - CAT 1
+Group Members:
+1. Leader - Name      VICTOR MUSYOKA        COM/B/01-00122/2025 
+2. Member 2 -         SIMON KIAMBA          COM/B/01-00123/2025
+3. member 3           OLIVER OPONDO         COM/B/01-06915/2025   
+
+Link:              ngumbauvictor-22/MMUST-SHOP
